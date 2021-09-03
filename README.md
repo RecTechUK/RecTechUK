@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RecTechUK
-- 👀 I’m interested in finding Software Developers their dream joba.
+- 👀 I’m interested in finding Software Developers their dream job.
 - 📫 How to reach me ... R.Leinster@Activ8Recruitment.com
 
 <!---
